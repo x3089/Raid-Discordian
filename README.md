@@ -115,4 +115,6 @@ $ node index.js
 DISCORD JS V13
 <br>
 https://x3089.github.io
+Tu mama es mia y de nadie mas - By Astra https://github.com/x3089
+Acostado con tu mama
  <br>
